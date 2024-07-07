@@ -2,7 +2,7 @@
 - 👀 I’m interested in play with codes and make happy myself
 - 🌱 I’m currently learning BCA(Bachelor of computer application)
 - 💞️ I’m looking to collaborate on programming
-- 📫 How to reach me:kp.bhusa2021@gmail.com
+https://www.krishnapariyar123.com.np/
 
 <!---
 krishnapari/krishnapari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
